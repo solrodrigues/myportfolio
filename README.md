@@ -21,7 +21,7 @@ Minhas credenciais incluem um bacharel em Engenharia de Produção, -um MBA e me
 ### Links:
 
 * [LinkedIn](https://www.linkedin.com/in/solimar-rodrigues-6a5984105/)
-* [Medium](https://www.medium.com) -criar-
+* [Medium](https://medium.com/@sol.brodrigues)
 
 
 ## Projetos:
